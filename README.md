@@ -7,3 +7,5 @@
 ## [Pytania - PDF](https://drive.google.com/file/d/1lXw5zZDIIYmtuixGDkBkrm6Thifb3-al/view?usp=sharing)
 
 ## [BAZA PYTAŃ - PDF](https://drive.google.com/file/d/1ux5T5GCN24tA86EdZN1IImdaq0p5nVlu/view?usp=sharing)
+
+## [KLUCZOWE PUNKTY](https://drive.google.com/file/d/1pADoooe-4Y7ofJEH3NtvWNe_q3dRw_3L/view?usp=sharing)
